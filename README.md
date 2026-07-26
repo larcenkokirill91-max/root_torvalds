@@ -24,4 +24,4 @@ I am currently developing a **fully functional 32-bit computer inside Minecraft 
 ## 📫 Connect with me
 *   **Discord:** gitlarosum
 *   **Email:** larcenkokirill91@gmail.com
-*   **TikTok:** https://www.tiktok.com/@_analos_
+*   **TikTok:** (https://www.tiktok.com/@_analos_)
